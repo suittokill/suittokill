@@ -1,2 +1,2 @@
-# Read my rentry for more information!
-**I go by Suit, or Valentine, or any of the names associated with my copelinks.**
+# @Suitntie : @Suittokill
+**I go by my usernames, or Valentine... or any of the names associated with my copinglinks.**
