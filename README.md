@@ -3,7 +3,7 @@
 If you recognize my skins, please say hi! I may not respond-- I go offtab regularly-- so if I don't, feel free to whisper me, unless I'm on DND/'Busy'. <br>
 [ ] I temphide *BTD, Changed, YanSim, and YBF* skins-- sorry, the media makes me uncomfortable.<br> ^ <sup>[Boyfriend To Death, Yandere Simulator, and Your Boyfriend]</sup> <br>
 [ ] I don't usually RP with strangers unless I'm in a party with them: please don't ask me to RP unless I already know you. <br>
-[ ] 
+[ ] Discord. suittokill : I do have another account (suitntie), but I've been less active on it.
 <details>
 <summary>Various Links:</summary>
   
