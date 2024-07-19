@@ -11,9 +11,7 @@ If you recognize my skin, PLEASE SAY HI! I don't bite unless I'm feeling /silly,
 <details>
 <summary>Various Links:</summary>
   
-[/suitntie](https://rentry.co/suitntie), my main profile rentry; <br>
-[/suittokill](https://rentry.co/suittokill), which is unimportant but is another rentry of mine; <br>
-[/suits-kinfo](https://rentry.co/suits-kinfo), my current kins and tropes i align with, feel free to take a look; <br>
+[my carrd](https://suitntie.carrd.co), which is a more in-depth bio + my commissions!
 [pronouns.cc](https://pronouns.cc/@suittokill) page, which also has kintype information as well as genderstuff, names, and pronouns;
 
 </details>
