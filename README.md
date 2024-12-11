@@ -2,7 +2,7 @@
 (I recommend reading my [card](https://suitntie.carrd.co) instead, it's formatted nicer and I worked hard on it)
 ### About Me
 Hey, I'm Valentine! You can also call me The Editor. I don't care *too* much about names, just be respectful please!<br>
-Transmasculine. I'm an artist and I write too, on occasion! I'm fictionkin You can ask me questions as long as you aren't mean about it. ^^ <br>
+Transmasculine. I'm an artist and I write too, on occasion! I'm fictionkin. You can ask me questions as long as you aren't mean about it. ^^ <br>
 
 I love music, film, and story writing. I'm an artist! <br>
 ### Pony Town
