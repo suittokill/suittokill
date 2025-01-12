@@ -1,5 +1,5 @@
 # @Suitntie : @Suittokill
-(I recommend reading my [card](https://suitntie.carrd.co) or [strawpage](https://suitntie.straw.page)instead, it's formatted nicer and I worked hard on it)
+(I recommend reading my [card](https://suitntie.carrd.co) or [strawpage](https://suitntie.straw.page) instead, it's formatted nicer and I worked hard on it)
 ### About Me
 Hey, I'm Valentine! You can also call me The Editor. You can call me what you want, I just may not respond to anything else, lol.<br>
 Transmasculine. I'm an artist and I write too, on occasion! I'm fictionkin. You can ask me questions as long as you aren't mean about it. ^^ <br>
